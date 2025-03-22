@@ -1,6 +1,6 @@
 # Dual Net机场官网地址
 
-最新地址：[getdualnet.com](https://my.godualnet.com/#/register?code=EozBpJPf)
+最新地址：[getdualnet.com](https://os.godualnet.com/#/register?code=EozBpJPf)
 
 ## Dual Net机场简介
 
